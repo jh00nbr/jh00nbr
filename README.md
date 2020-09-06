@@ -1,6 +1,9 @@
 ### Hi there 👋
 ### 🔭 I’m currently working on ..
 
+### Saiyajin in training living on earth, in constant evolution. 🌎
+
+
 <!--
 **jh00nbr/jh00nbr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
